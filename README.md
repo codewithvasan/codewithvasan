@@ -1,4 +1,4 @@
-- Hi, I’m @codewithvasan
+- Hi, I’m Rudra Vasan
 - I’m interested in coding 
 - I’m currently learning
 - Contact on - codewithvasan@gmail.com
